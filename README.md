@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love writing stories about love and fantasies.
+- ⚡ Fun fact: idk, why you looking?
+- 💡 Favorite quote : Let the ashes of the past rebirth a new futur.
 
 <!---
 Kyldela/Kyldela is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
